@@ -3,6 +3,6 @@ Just another repository
 
 Dear Earth,
 
-Stop fighting! 
+Please stop fighting! 
 
 Thanks
